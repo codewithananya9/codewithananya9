@@ -107,4 +107,4 @@ https://linkedin.com/in/ananya-raghav-a5b96b379
 https://github.com/codewithananya9
 
 📧 **Email:**  
-an
+ananyaraghav522@gmail.com
